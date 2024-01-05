@@ -1,1 +1,1 @@
-![](https://github.com/gayfrotting/gayfrotting/assets/113424201/7d60e9c9-0aef-41da-b85c-505134f7e3c6)
+![ezgif-7-5874db2a9d](https://github.com/gayfrotting/gayfrotting/assets/113424201/875c3902-dc29-460a-9522-463df66c6a68)
