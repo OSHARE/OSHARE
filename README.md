@@ -2,7 +2,7 @@
 
 hi iam ishmael (≧ヮ≦) i am usually not very active on ponytown but i love hanging out with my friends. so very much (´▽`ʃ♡ƪ)
 
-[gjgg37](https://github.com/gayfrotting/gayfrotting/assets/113424201/d9e9c271-0263-42d4-8fb9-90634024c6cc)
+![gjgg37](https://github.com/gayfrotting/gayfrotting/assets/113424201/d9e9c271-0263-42d4-8fb9-90634024c6cc)
 
 
 ![tumblr_50b85c69ba3072e3153f5971bead7125_561ab1c1_1280](https://github.com/gayfrotting/gayfrotting/assets/113424201/50f33d19-5390-4083-934a-e9c1ecf0f77a)
