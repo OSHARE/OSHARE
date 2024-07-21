@@ -1,8 +1,7 @@
 ![tumblr_50b85c69ba3072e3153f5971bead7125_561ab1c1_1280](https://github.com/gayfrotting/gayfrotting/assets/113424201/50f33d19-5390-4083-934a-e9c1ecf0f77a)
 
 hi iam ishmael (≧ヮ≦) i am usually not very active on ponytown but i love hanging out with my friends. so very much (´▽`ʃ♡ƪ)
-i am usually nonverbal unless we're friends
-married to a lovely wifeei 
+i am usually not very talkative to people i don't know/nonverbal
 ![gjgg37](https://github.com/gayfrotting/gayfrotting/assets/113424201/d9e9c271-0263-42d4-8fb9-90634024c6cc)
 
 
