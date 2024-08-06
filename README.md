@@ -1,18 +1,23 @@
-![tumblr_50b85c69ba3072e3153f5971bead7125_561ab1c1_1280](https://github.com/gayfrotting/gayfrotting/assets/113424201/50f33d19-5390-4083-934a-e9c1ecf0f77a)
+<p align="center">
+<img src="https://files.catbox.moe/7i9kgt.png" data-canonical-src="(https://files.catbox.moe/7i9kgt.png)" width="750" height="320" />
+</p>
 
-hi iam ishmael (≧ヮ≦) i am usually not very active on ponytown but i love hanging out with my friends. so very much (´▽`ʃ♡ƪ)
-i am usually not very talkative to ppl i don't know
+<p align="center">
+ $\color{#cdd0e9}{\textbf{“THINK NOT, IS MY ELEVENTH COMMANDMENT;}}$ <br/>
+ $\color{#cdd0e9}{\textbf{ AND SLEEP WHEN YOU CAN, IS MY TWELFTH.”}}$
+</p>
 
+<p align="center">
+<img src="https://files.catbox.moe/8ak3r0.png" data-canonical-src="(https://files.catbox.moe/8ak3r0.png)" width="750" height="50" />
+</p>
 
-![gjgg37](https://github.com/gayfrotting/gayfrotting/assets/113424201/d9e9c271-0263-42d4-8fb9-90634024c6cc)
+<p align="center">
+$\color{#cdd0e9}{\textbf{ call me frei or catherine , hethey prns , i ♡ yuri and projmoon , seasian (filipino) }}$
+  
+</p>
 
+***
 
-![tumblr_50b85c69ba3072e3153f5971bead7125_561ab1c1_1280](https://github.com/gayfrotting/gayfrotting/assets/113424201/50f33d19-5390-4083-934a-e9c1ecf0f77a)
-
-![Untitled118_20240127164843](https://github.com/gayfrotting/gayfrotting/assets/113424201/80feb291-3ffc-49d3-aa56-ffe186e1bcee) ![rxkt4p](https://github.com/gayfrotting/gayfrotting/assets/113424201/855b54f5-d4fe-40ba-885d-8e66cc71565f) ![Untitled118_20240127164806](https://github.com/gayfrotting/gayfrotting/assets/113424201/d81be07a-de63-454f-a91f-3e42e97eb4c1) ![tbkbag](https://github.com/gayfrotting/gayfrotting/assets/113424201/aea73ce6-01c3-43d2-857a-9103b1f376ea) ![Untitled118_20240127164758](https://github.com/gayfrotting/gayfrotting/assets/113424201/13c920e0-b7c1-4c69-a57f-3f76d8e7928f) ![d1kmitc-5c98bb23-f73d-45ee-87fb-2086bfdc7aa4](https://github.com/gayfrotting/gayfrotting/assets/113424201/e6b6c204-e0fb-4522-a436-ac5ab37407bc) ![Untitled118_20240127164810](https://github.com/gayfrotting/gayfrotting/assets/113424201/ebdb55c1-b336-4004-9da8-4557cbdf5f5f)
-
-
-https://github.com/gayfrotting/gayfrotting/assets/113424201/cb7dbf84-41c9-405d-ac69-2422f0c4ccb8
-
-
-
+<p align="center">
+<a href="https://x.com/contemptawe">TWITTER</a> | <a href="https://contemptawe.atabook.org/">SIGN MY ATABOOK!</a>
+</p>
