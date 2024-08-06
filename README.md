@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/7i9kgt.png" data-canonical-src="(https://files.catbox.moe/7i9kgt.png)" width="300" height="120" />
+<img src="https://files.catbox.moe/7i9kgt.png" data-canonical-src="(https://files.catbox.moe/7i9kgt.png)" width="500" height="180" />
 </p>
 
 <p align="center">
@@ -8,9 +8,8 @@
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/8ak3r0.png" data-canonical-src="(https://files.catbox.moe/8ak3r0.png)" width="750" height="50" />
+<img src="https://files.catbox.moe/8ak3r0.png" data-canonical-src="(https://files.catbox.moe/8ak3r0.png)" width="600" height="50" />
 </p>
-
 <p align="center">
 $\color{#cdd0e9}{\textbf{ call me frei or catherine , hethey prns , dating my most beloved wife , seasian (filipino) }}$
   
