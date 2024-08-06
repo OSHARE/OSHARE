@@ -12,12 +12,12 @@
 </p>
 
 <p align="center">
-$\color{#cdd0e9}{\textbf{ call me frei or catherine , hethey prns , i ♡ yuri and projmoon , seasian (filipino) }}$
+$\color{#cdd0e9}{\textbf{ call me frei or catherine , hethey prns , dating my most beloved and lovely wife , seasian (filipino) }}$
   
 </p>
 
 ***
 
 <p align="center">
-<a href="https://x.com/contemptawe">TWITTER</a> | <a href="https://contemptawe.atabook.org/">SIGN MY ATABOOK!</a>
+<a href="https://x.com/contemptawe">TWITTER</a> | <a href="rentry.co/thepequod">RENTRY (OUTDATED) </a> | <a href="https://contemptawe.atabook.org/">SIGN MY ATABOOK!</a>
 </p>
