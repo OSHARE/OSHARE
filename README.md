@@ -19,5 +19,5 @@ $\color{#cdd0e9}{\textbf{ call me frei or catherine , hethey prns , dating my mo
 ***
 
 <p align="center">
-<a href="https://x.com/contemptawe">TWITTER</a> | <a href="rentry.co/thepequod">RENTRY (OUTDATED) </a> | <a href="https://contemptawe.atabook.org/">SIGN MY ATABOOK!</a>
+<a href="https://x.com/contemptawe">TWITTER</a> | <a href="[rentry.co/thepequod](https://rentry.co/pequod)">RENTRY (OUTDATED) </a> | <a href="https://contemptawe.atabook.org/">SIGN MY ATABOOK!</a>
 </p>
