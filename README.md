@@ -12,7 +12,10 @@
 </p>
 <p align="center">
 $\color{#cdd0e9}{\textbf{ call me frei or catherine , hethey prns , dating my most beloved wife , seasian (filipino) }}$
-  
+</p>
+
+<p align="center">
+<img src="https://files.catbox.moe/vmee9y.gif" data-canonical-src="(https://files.catbox.moe/vmee9y.gif)"
 </p>
 
 ***
