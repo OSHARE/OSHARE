@@ -1,21 +1,21 @@
 <p align="center">
-<img src="https://files.catbox.moe/7i9kgt.png" data-canonical-src="(https://files.catbox.moe/7i9kgt.png)" width="700" height="310" />
+<img src="https://files.catbox.moe/y3ozoe.gif" data-canonical-src="(https://files.catbox.moe/y3ozoe.gif)" width="700" height="310" />
 </p>
 
 <p align="center">
- $\color{#cdd0e9}{\textbf{“THINK NOT, IS MY ELEVENTH COMMANDMENT;}}$ <br/>
- $\color{#cdd0e9}{\textbf{ AND SLEEP WHEN YOU CAN, IS MY TWELFTH.”}}$
+ $\color{#db0d0d}{\textbf{“The blood—in its purest and clearest form!}}$ <br/>
+ $\color{#db0d0d}{\textbf{ Bring me eternal happiness!”}}$
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/8ak3r0.png" data-canonical-src="(https://files.catbox.moe/8ak3r0.png)" width="600" height="50" />
+<img src="https://64.media.tumblr.com/4faa11233a43dc8f96387356a19e3b27/0204d4661e661699-c9/s500x750/49da1f37a277d22126dfd9d238001ae75c1b866f.gifv" data-canonical-src="(https://64.media.tumblr.com/4faa11233a43dc8f96387356a19e3b27/0204d4661e661699-c9/s500x750/49da1f37a277d22126dfd9d238001ae75c1b866f.gifv)" width="500" height="70" />
 </p>
 <p align="center">
-$\color{#cdd0e9}{\textbf{ call me frei or catherine , hethey prns , dating my most beloved wife , seasian (filipino) }}$
+$\color{#db0d0d}{\textbf{ call me frei or catherine , hethey prns , dating my most beloved wife , seasian (filipino) }}$
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/vmee9y.gif" data-canonical-src="(https://files.catbox.moe/vmee9y.gif)"
+<img src="https://files.catbox.moe/vmee9y.gif" data-canonical-src="(https://files.catbox.moe/vmee9y.gif)" /> i like chiikawa 
 </p>
 
 ***
