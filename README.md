@@ -23,3 +23,9 @@ $\color{#cdd0e9}{\textbf{ call me frei or catherine , hethey prns , dating my mo
 <p align="center">
 <a href="https://x.com/contemptawe">TWITTER</a> | <a href="https://rentry.co/pequod">RENTRY (OUTDATED) </a> | <a href="https://contemptawe.atabook.org/">SIGN MY ATABOOK!</a>
 </p>
+
+***
+
+https://github.com/user-attachments/assets/af728965-a575-418d-a50b-0c075d05e219
+
+
