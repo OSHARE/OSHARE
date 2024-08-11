@@ -15,7 +15,7 @@ $\color{#db0d0d}{\textbf{ call me frei or catherine , hethey prns , dating my mo
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/m6f6ez.gif" data-canonical-src="(https://files.catbox.moe/m6f6ez.gif)" /> (stupid and evil cat)
+(stupid and evil cat) <img src="https://files.catbox.moe/m6f6ez.gif" data-canonical-src="(https://files.catbox.moe/m6f6ez.gif)" />
 </p>
 
 <p align="center">
