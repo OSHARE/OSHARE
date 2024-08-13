@@ -11,7 +11,8 @@
 <img src="https://64.media.tumblr.com/4faa11233a43dc8f96387356a19e3b27/0204d4661e661699-c9/s500x750/49da1f37a277d22126dfd9d238001ae75c1b866f.gifv" data-canonical-src="(https://64.media.tumblr.com/4faa11233a43dc8f96387356a19e3b27/0204d4661e661699-c9/s500x750/49da1f37a277d22126dfd9d238001ae75c1b866f.gifv)" width="500" height="70" />
 </p>
 <p align="center">
-$\color{#db0d0d}{\textbf{ call me frei or catherine , hethey prns , dating my most beloved wife , seasian (filipino) }}$
+$\color{#db0d0d}{\textbf{ call me frei or catherine , hethey prns , dating my most beloved wife , seasian (filipino) }}$ <br/>
+$\color{#db0d0d}{\textbf{ im usually shy when it comes to approaching and talking 2 people first so if you want to bmf you have to force me 2....
 </p>
 
 <p align="center">
