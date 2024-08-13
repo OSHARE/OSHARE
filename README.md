@@ -15,7 +15,11 @@ $\color{#db0d0d}{\textbf{ call me frei or catherine , hethey prns , dating my mo
 </p>
 <p align="center">
 $\color{#db0d0d}{\textbf{ im usually shy when it comes to approaching and talking 2 people first so if you want to }}$ <br/>
-$\color{#db0d0d}{\textbf{ bmf you have to force me 2....}}$
+$\color{#db0d0d}{\textbf{ bmf you have to force me 2....}}$ <br/>
+</p>
+
+<p align="center">
+$\color{#db0d0d}{\textbf{ you can almost always spot me on safe enstars area, left of genshin area unless im doing sth else }}$
 </p>
 
 <p align="center">
